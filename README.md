@@ -1,0 +1,1 @@
+# Donation for stray dogs
